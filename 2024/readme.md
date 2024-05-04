@@ -5,12 +5,15 @@
 ### 서울호떡 논현점
 
 - https://naver.me/5ncPIbJL
+- https://www.instagram.com/seoul_hotteok_/
 - 방문한 계기 - 지나가다가 마님이 우연히 발견함
 - 구입한 상품 - 잡채호떡 (1일 100개 한정 판매한다고 해서)
 
 ### 외계인방앗관
 
 - https://naver.me/G3Jh8kLX
+- http://www.alienmill.co.kr/default/
+- https://www.instagram.com/alienmill_official/
 - 방문한 계기 - 마님 취향이고, 서울호떡 논현점 바로 옆에 붙어 있음
 - 구입한 상품 - 쌀로 된 식빵
 
